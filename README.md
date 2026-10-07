@@ -1,0 +1,3 @@
+COMO RESOLVER CONFLITOS?
+Vamos juntos nessa.
+É dificil, mas...
